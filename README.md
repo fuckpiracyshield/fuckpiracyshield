@@ -15,3 +15,9 @@ Piracy Shield, a platform developed by SP Tech Legal for AGCOM, is not just a fa
 Granting authorities unchecked power to block online content represents a significant threat to freedom of expression and access to information. This draconian approach not only fails to effectively combat piracy but also undermines fundamental democratic principles.
 
 It is necessary to recognize Piracy Shield for what it truly is: a tool of censorship disguised as a solution to piracy. Piracy Shield is simply the result of technical incompetence and excessive bureaucracy, a constant in the Italian government.
+
+----
+
+https://torrentfreak.com/piracy-shield-2-just-when-iptv-pirates-thought-it-was-safe-240611/
+
+Chissà come mai? Tornate fra qualche settimana per informazioni piccanti 👀
